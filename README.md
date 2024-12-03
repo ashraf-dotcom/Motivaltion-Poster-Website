@@ -1,1 +1,1 @@
-# Motivaltion-Poster-Website
+# Motivation-Poster-Website
